@@ -7,11 +7,13 @@ image = ""
 +++
 Gym, Kraftsport, Fitness… alle diese Begriffe erfahren seit einiger Zeit immer wie grössere Anerkennung und Etablierung im Alltag vieler Personen, was motiviert die Leute?
 
-Von Nicola Wisler & Nick Schild, Gymnasium Interlaken 2023 
-
 
 
 ![https://unsplash.com/de/fotos/CQfNt66ttZM](photo-1534438327276-14e5300c3a48.avif)
+
+Von Nicola Wisler & Nick Schild, Gymnasium Interlaken 2023 
+
+
 
 Wer schon einmal in einem Fitnessstudio war, kennt das Gefühl, wenn man den mit dicker Luft, Maschinen und klirrenden Gewichten gefüllten Raum zum ersten Mal betritt. Die Fitnesszentren der Schweiz aber auch sonst überall auf der Welt werden immer häufiger besucht, immer mehr Leute finden Gefallen an Sport im Fitnesszentrum. Ob dies ein\*e Rentner\*in ist, der\*die noch etwas fitter werden will oder ein\*e junge\*r Student\*in, der*die mit Powerlifting oder Bodybuilding beginnen will. Auch die sozialen Medien florieren Inhalten wie Blogs oder Dokumentationen zum Thema Fitness & Sport.
 
