@@ -3,7 +3,7 @@ title = "Auf die Plätze, fertig, pumpen!"
 date = "2023-06-15"
 draft = true
 pinned = false
-image = "photo-1534438327276-14e5300c3a48.avif"
+image = ""
 +++
 Gym, Kraftsport, Fitness… alle diese Begriffe erfahren seit einiger Zeit immer wie grössere Anerkennung und Etablierung im Alltag vieler Personen, was motiviert die Leute?
 
