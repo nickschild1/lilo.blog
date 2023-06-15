@@ -7,13 +7,9 @@ image = ""
 +++
 Gym, Kraftsport, Fitness… alle diese Begriffe erfahren seit einiger Zeit immer wie grössere Anerkennung und Etablierung im Alltag vieler Personen, was motiviert die Leute?
 
-
-
-![https://unsplash.com/de/fotos/CQfNt66ttZM](photo-1534438327276-14e5300c3a48.avif)
+![https://unsplash.com/de/fotos/CQfNt66ttZM](bild1.avif)
 
 Von Nicola Wisler & Nick Schild, Gymnasium Interlaken 2023 
-
-
 
 Wer schon einmal in einem Fitnessstudio war, kennt das Gefühl, wenn man den mit dicker Luft, Maschinen und klirrenden Gewichten gefüllten Raum zum ersten Mal betritt. Die Fitnesszentren der Schweiz aber auch sonst überall auf der Welt werden immer häufiger besucht, immer mehr Leute finden Gefallen an Sport im Fitnesszentrum. Ob dies ein\*e Rentner\*in ist, der\*die noch etwas fitter werden will oder ein\*e junge\*r Student\*in, der*die mit Powerlifting oder Bodybuilding beginnen will. Auch die sozialen Medien florieren Inhalten wie Blogs oder Dokumentationen zum Thema Fitness & Sport.
 
@@ -31,7 +27,7 @@ Simon wäre nicht Simon, ohne noch ein paar hammer Tipps auf Lager zu haben. Auf
 
 Der Markt rund um Fitnessprodukte wie zum Beispiel Supplements (Nahrungsmittelergänzungsstoffe, beispielsweise Protein Pulver) und Bekleidung hat in der letzten Zeit einen grossen Aufschwung erfahren. Der Fitnesstrend geht auch Hand in Hand mit dem steigenden Konsum der Leute. Viele neue Unternehmen kamen/kommen auf und erzielen jetzt schon von Jahr auf Jahr Rekordgewinne. Dazu kommt, dass die Nachfrage nicht sinkt, im Gegenteil, es ist weiterhin ein Anstieg zu vorhanden, welcher eine gute Zukunft für Unternehmen in der Fitnessbranche verspricht. Jedoch muss das ganze kritisch betrachtet werden. Das Wachstum der Nachfrage zu dem Angebot bringt nicht nur Gutes mit sich. So wird immer häufiger gesagt, dass die Proteinpulver, welche zu hohen Preisen verkauft werden, eigentlich gar nicht so förderlich/gesund sind wie sie vermarktet werden. So mussten Hersteller*innen in letzter Zeit teilweise bereits die Menge der Proteinstoffe in ihren Produkten senken. Oftmals sind es junge aber natürlich auch ältere Leute, die zu wenig aufgeklärt sind bezüglich Ernährung und Nahrungsstoffen, welche für Werbung durch grosse Influencer/Stars überzeugt werden, die teuren Supplements zu kaufen. Wichtig zu erwähnen ist noch, dass es Supplements gibt, die einen Sinn erfüllen und auch Vorteile mit sich bringen, aber das meiste bezüglich Nährstoffen kann durch richtig und koordinierte Ernährung selbst erzielt werden.
 
-![https://unsplash.com/de/fotos/DRchVK5apjw](photo-1624362772755-4d5843e67047.avif)
+![https://unsplash.com/de/fotos/DRchVK5apjw](bild2.avif)
 
 ## **Was zeichnet gutes Training aus?**
 
@@ -41,4 +37,4 @@ Ein gutes Training bedeutet für jede\*n etwas anderes. Der\*die eine versteht u
 
 Das sportliche Aktivität gesund ist, ist allgemein bekannt. Ist denn nun aber das wiederholte Heben oder Ziehen von schweren Gewichten auch gesund? Die einfache Antwort ist: JA! Auch extreme Formen von Kraftsport wie beispielsweise Powerlifting wirken sich positiv auf den Körper aus, auch ist der Sport verglichen mit anderen Sportarten relativ verletzungsfrei. Trotzdem muss gesagt werden, dass, wie bei fast allem auch zu viel Sport ungesund sein kann. Es ist genauso wichtig dem Körper Ruhe- und Erholungszeit zu geben. Vor allem Beginner*innen sollten darauf achten, dass sie sich nicht «übertrainieren».
 
-![https://unsplash.com/de/fotos/hIgeoQjS_iE](photo-1532938911079-1b06ac7ceec7.avif)
+![https://unsplash.com/de/fotos/hIgeoQjS_iE](bild3.avif)
