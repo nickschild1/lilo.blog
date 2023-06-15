@@ -1,7 +1,7 @@
 +++
 title = "Auf die Plätze, fertig, pumpen!"
 date = "2023-06-15"
-draft = true
+draft = false
 pinned = false
 image = ""
 +++
