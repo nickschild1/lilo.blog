@@ -21,17 +21,17 @@ Dies leitet nun auch zum ersten Vorteil über von … Das Trainieren kann einem 
 
 Simon wäre nicht Simon, ohne noch ein paar hammer Tipps auf Lager zu haben. Auf die Frage welches die drei Wichtigsten Punkte es als Anfänger zu beachten gilt, erhielten wir eine kurze hilfreiche Antwort. «Ernährung/Regenration, Konstanz beibehalten und Spass beim Training haben.» Dies seien die drei Punkte, welche man beachten sollte. Der zweite Punkt mit der Konstanz findet sich auch in Simons Motto wieder, dies lauter nämlich «consitency is key» Abschliessend meinte er, Training erfordere Disziplin und müsse einem auch Spass machen. Es sei wichtig das, dass Training keine Qual sei, sondern dass es sich im Alltag integriert. Es war spannend und motivierend einen so ambitionierten, jungen Mann wie Simon E. treffen zu dürfen.
 
-## **Fitnesstrend = Profit?**
+## Fitnesstrend = Profit?
 
 Der Markt rund um Fitnessprodukte wie zum Beispiel Supplements (Nahrungsmittelergänzungsstoffe, beispielsweise Protein Pulver) und Bekleidung hat in der letzten Zeit einen grossen Aufschwung erfahren. Der Fitnesstrend geht auch Hand in Hand mit dem steigenden Konsum der Leute. Viele neue Unternehmen kamen/kommen auf und erzielen jetzt schon von Jahr auf Jahr Rekordgewinne. Dazu kommt, dass die Nachfrage nicht sinkt, im Gegenteil, es ist weiterhin ein Anstieg zu vorhanden, welcher eine gute Zukunft für Unternehmen in der Fitnessbranche verspricht. Jedoch muss das ganze kritisch betrachtet werden. Das Wachstum der Nachfrage zu dem Angebot bringt nicht nur Gutes mit sich. So wird immer häufiger gesagt, dass die Proteinpulver, welche zu hohen Preisen verkauft werden, eigentlich gar nicht so förderlich/gesund sind wie sie vermarktet werden. So mussten Hersteller*innen in letzter Zeit teilweise bereits die Menge der Proteinstoffe in ihren Produkten senken. Oftmals sind es junge aber natürlich auch ältere Leute, die zu wenig aufgeklärt sind bezüglich Ernährung und Nahrungsstoffen, welche für Werbung durch grosse Influencer/Stars überzeugt werden, die teuren Supplements zu kaufen. Wichtig zu erwähnen ist noch, dass es Supplements gibt, die einen Sinn erfüllen und auch Vorteile mit sich bringen, aber das meiste bezüglich Nährstoffen kann durch richtig und koordinierte Ernährung selbst erzielt werden.
 
 ![https://unsplash.com/de/fotos/DRchVK5apjw](bild2.avif)
 
-## **Was zeichnet gutes Training aus?**
+## Was zeichnet gutes Training aus?
 
 Ein gutes Training bedeutet für jede\*n etwas anderes. Der\*die eine versteht unter gutem Trainieren, dass man drei Mal die Woche eine Stunde ins Fitnessstudio geht, um dort Ausdauertraining zu machen, dies wiederum kann der\*die Fitnessbesucher\*in, welche*r sieben Mal die Woche für zweieinhalb Stunden ins Fitnessstudio geht, vielleicht nicht verstehen. Darüber, was wirklich ein gesundes Training ist, spalten sich die Geister.
 
-## **Ist denn Kraftsport überhaupt gesund?**
+## Ist denn Kraftsport überhaupt gesund?
 
 Das sportliche Aktivität gesund ist, ist allgemein bekannt. Ist denn nun aber das wiederholte Heben oder Ziehen von schweren Gewichten auch gesund? Die einfache Antwort ist: JA! Auch extreme Formen von Kraftsport wie beispielsweise Powerlifting wirken sich positiv auf den Körper aus, auch ist der Sport verglichen mit anderen Sportarten relativ verletzungsfrei. Trotzdem muss gesagt werden, dass, wie bei fast allem auch zu viel Sport ungesund sein kann. Es ist genauso wichtig dem Körper Ruhe- und Erholungszeit zu geben. Vor allem Beginner*innen sollten darauf achten, dass sie sich nicht «übertrainieren».
 
