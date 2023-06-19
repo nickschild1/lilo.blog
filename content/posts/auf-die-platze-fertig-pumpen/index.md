@@ -5,7 +5,7 @@ draft = false
 pinned = false
 image = ""
 +++
-**Gym, Kraftsport, Fitness… alle diese Begriffe erfahren seit einiger Zeit immer wie grössere Anerkennung und Etablierung im Alltag vieler Personen, was motiviert die Leute?**
+#### **Gym, Kraftsport, Fitness… alle diese Begriffe erfahren seit einiger Zeit immer wie grössere Anerkennung und Etablierung im Alltag vieler Personen, was motiviert die Leute?**
 
 ![https://unsplash.com/de/fotos/CQfNt66ttZM](bild1.avif)
 
