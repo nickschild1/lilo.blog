@@ -23,8 +23,6 @@ Simon wäre nicht Simon, ohne noch ein paar hammer Tipps auf Lager zu haben. Auf
 
 **Fitnesstrend = Profit?**
 
-"Ein Bild, das Essen, Snack, Gemüse, Mahlzeit enthält"/>
-
 Der Markt rund um Fitnessprodukte wie zum Beispiel Supplements (Nahrungsmittelergänzungsstoffe, beispielsweise Protein Pulver) und Bekleidung hat in der letzten Zeit einen grossen Aufschwung erfahren. Der Fitnesstrend geht auch Hand in Hand mit dem steigenden Konsum der Leute. Viele neue Unternehmen kamen/kommen auf und erzielen jetzt schon von Jahr auf Jahr Rekordgewinne. Dazu kommt, dass die Nachfrage nicht sinkt, im Gegenteil, es ist weiterhin ein Anstieg zu vorhanden, welcher eine gute Zukunft für Unternehmen in der Fitnessbranche verspricht. Jedoch muss das ganze kritisch betrachtet werden. Das Wachstum der Nachfrage zu dem Angebot bringt nicht nur Gutes mit sich. So wird immer häufiger gesagt, dass die Proteinpulver, welche zu hohen Preisen verkauft werden, eigentlich gar nicht so förderlich/gesund sind wie sie vermarktet werden. So mussten Hersteller*innen in letzter Zeit teilweise bereits die Menge der Proteinstoffe in ihren Produkten senken. Oftmals sind es junge aber natürlich auch ältere Leute, die zu wenig aufgeklärt sind bezüglich Ernährung und Nahrungsstoffen, welche für Werbung durch grosse Influencer/Stars überzeugt werden, die teuren Supplements zu kaufen. Wichtig zu erwähnen ist noch, dass es Supplements gibt, die einen Sinn erfüllen und auch Vorteile mit sich bringen, aber das meiste bezüglich Nährstoffen kann durch richtig und koordinierte Ernährung selbst erzielt werden.
 
 ![https://unsplash.com/de/fotos/DRchVK5apjw](bild2.avif)
